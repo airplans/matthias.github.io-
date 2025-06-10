@@ -1,1 +1,1 @@
-# matthias.github.io-
+# © 2025 Matthias. Tüm hakları saklıdır.
